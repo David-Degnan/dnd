@@ -1,1 +1,0 @@
-[[Sildar]] Hallwinter's wizard contact in [[Phandalin]]. He 
