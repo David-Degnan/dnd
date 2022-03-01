@@ -1,1 +1,0 @@
-The Phandalin of old times was destroyed in a war several centuries ago, as collateral in the war for the [[Wave Echo Cave]]. Now, a new Phandalin has emerged, but is lawless and wild. 
