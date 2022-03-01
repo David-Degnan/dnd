@@ -1,1 +1,0 @@
-A mysterious underground cavern where a supposed well exists that can turn anything magical. 
