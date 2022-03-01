@@ -1,0 +1,1 @@
+Loveable dwarf of the three Rockseeker brothers. They have apparently discovered a map to [[Wave Echo Cave]] outside of [[Phandalin]].

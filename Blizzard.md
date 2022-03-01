@@ -1,0 +1,4 @@
+-Half-elf sorceror
+-Raised in arctic 
+-Now a mercenary for hire
+-Steed: polar bear
