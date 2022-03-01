@@ -1,1 +1,0 @@
-A band of goblins with teeth sheered down to look like "crags". They are led by [[Klarg]] and [[Yeemik]], and are being paid to kidnap [[Gundren]] and those affiliated with him by a mysterious figure known as the [[Black Spider]].
