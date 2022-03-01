@@ -1,1 +1,0 @@
-Mysterious figure who paid the [[Cragmaw tribe]] to capture [[Gundren]] and his party.
